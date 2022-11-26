@@ -1,1 +1,2 @@
-# XIIRPL1B-K3Projek
+#XIRPL1B-K3Projek.
+Ketua: Sofia Aldila Lubis
